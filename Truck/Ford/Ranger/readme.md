@@ -1,0 +1,1 @@
+- [I "Picked" Frank Fritz's 1986 Ford Ranger - Can we Make it Run? Part 1](https://youtu.be/GTN6FpsIdDU)
